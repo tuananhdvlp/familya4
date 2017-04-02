@@ -1,4 +1,4 @@
-# NỘI QUY NHÓM J2TEAM COMMUNITY
+# NỘI QUY NHÓM Family A4
 
 Để tránh việc bị Kick, Ban hoặc bị xóa bài mà không biết nguyên nhân tại sao, đề nghị các bạn vui lòng **đọc kỹ nội quy** trước khi tham gia nhóm.
 
